@@ -1,4 +1,4 @@
-# 
+# Adobe Photoshop for macOS custom Plugin - grid systems and AI upscaling is the best Adobe Photoshop for macOS plugin, featuring grid systems and AI upscaling. Safe, efficient, and
 
 
 
